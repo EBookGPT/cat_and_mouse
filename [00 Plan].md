@@ -1,0 +1,1 @@
+Please provide me with the input you want me to insert. I need the plan and criticism of notes that you want me to use to create the outline. Once you give me the text, I can create a full outline for your fiction book "Cat and Mouse" with three chapters. 
